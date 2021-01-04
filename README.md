@@ -1,5 +1,3 @@
-Joel Chenoweth
-chenowej@oregonstate.edu 
-Green 
+Joel Chenoweth 
 7
 The Ramones
